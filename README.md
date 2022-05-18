@@ -1,1 +1,12 @@
-# nidhicompany
+Nidhi Company Business Plan
+![image](https://user-images.githubusercontent.com/102798589/169135746-79d5c359-676d-41ff-bbef-a6e87792844d.png)
+
+A Nidhi company Business Plan is required to hold 10% of total deposits collected in any nationalised bank as a fixed deposit each month. A Nidhi company Business Plan may close a branch only if it has issued an advertisement in a vernacular language newspaper in the area where it conducts business at least 30 days prior to the closure, alerting the public about the closure. Fixed deposit arrangements implemented by a mutual benefit company or a Nidhi business must be for a minimum of six months and a maximum of sixty months.  In the event of recurrent deposits, the minimum duration is 12 months and the maximum length is sixty months. A Nidhi corporation registration might take about two months from the day the application is filed.
+
+This corporation cannot issue dividends in excess of 25% or any greater amount permitted by the Regional Director. No Nidhi may appoint or re-appoint an auditor for more than one term of five years in a row. The rate of interest imposed on any loan made by a mutual benefit company should not be more than 7.5 per cent more than the highest rate of interest offered by Nidhi on deposits and shall be computed using the diminishing balance technique. This corporation must keep net owned funds of at least ten lakh rupees or the amount prescribed by the Central Government.
+
+Nidhi company Business Plan Execution
+This corporation cannot issue dividends in excess of 25% or any greater amount permitted by the Regional Director. No Nidhi may appoint or re-appoint an auditor for more than one term of five years in a row. The rate of interest imposed on any loan made by a mutual benefit company should not be more than 7.5 per cent more than the highest rate of interest offered by Nidhi on deposits and shall be computed using the diminishing balance technique. This corporation must keep net owned funds of at least ten lakh rupees or the amount prescribed by the Central Government. First and foremost, Nidhi Company must recruit 200 people in the first year. Furthermore, it should have net owned funds of at least ten lakhs or more, unencumbered term deposits of at least 10% of outstanding deposits, and a net owned funds to deposits ratio of no more than 1:20.
+
+https://muds.co.in/planning-setting-nidhi-company/
+![image](https://user-images.githubusercontent.com/102798589/169135790-7a1712da-799a-4729-9c46-ec8b540eba5d.png)
